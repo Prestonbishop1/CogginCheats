@@ -1,7 +1,7 @@
 # CogginCheats
 
 Me Prestons Cheats for School
-Click On one and Ejoy
+Click On one and Enjoy
 
 Rules...
 Dont Tell
